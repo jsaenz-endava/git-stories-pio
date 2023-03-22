@@ -1,7 +1,7 @@
 # Harry Potter 
 
 1. Harry Potter is living in a small cupboard under the stairs in the Dursleys' home, where he is mistreated and neglected.
-2. NEED
+2. Harry dreams of being free from the Dursleys and the miserable life they have forced upon him.
 3. GO
 4. SEARCH
 5. FIND
