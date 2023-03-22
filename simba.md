@@ -4,7 +4,7 @@
 2. Simba wants to be a great king like his father and make his mark on the world.
 3. Simba's uncle Scar plots with a pack of hyenas to kill Mufasa and make himself the new king. Simba witnesses his father's death and believes he is responsible, so he runs away from the Pride Lands in shame.
 4. Simba must survive on his own in the wilderness, learning how to hunt and fend for himself with the help of new friends, Timon and Pumbaa.
-5. FIND
+5. Simba eventually becomes a fully-grown lion and realizes that he must face his past and take his rightful place as king. With the help of his friends and Rafiki, the wise old baboon, Simba confronts Scar and defeats him in battle, reclaiming his place as the rightful king of the Pride Lands.
 6. TAKE
 7. RETURN
 8. CHANGE
