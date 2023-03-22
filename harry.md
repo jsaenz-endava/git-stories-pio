@@ -2,7 +2,7 @@
 
 1. Harry Potter is living in a small cupboard under the stairs in the Dursleys' home, where he is mistreated and neglected.
 2. Harry dreams of being free from the Dursleys and the miserable life they have forced upon him.
-3. GO
+3. Harry receives a letter from Hogwarts School of Witchcraft and Wizardry, which is an entirely new world that he never knew existed.
 4. SEARCH
 5. FIND
 6. TAKE
