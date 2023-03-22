@@ -7,6 +7,6 @@
 5. Harry discovers that he is a wizard and that his parents were murdered by the dark wizard Voldemort. He also makes the Quidditch team and begins to feel at home in Hogwarts.
 6. Harry and his friends discover that Voldemort is trying to steal the Philosopher's Stone, which can grant immortality. They must overcome obstacles and challenges to stop him.
 7. After defeating Voldemort, Harry returns to the Dursleys' home for the summer, but he has changed. He no longer feels trapped and alone, and he knows that he has a place in the wizarding world.
-8. CHANGE
+8. Harry is no longer the mistreated boy living in a cupboard under the stairs. He has discovered his true identity and has found a place where he belongs.
 
 ### Written by J. K. Rowling
