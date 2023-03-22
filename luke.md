@@ -4,7 +4,7 @@
 2. Luke longs to become a pilot and leave Tatooine to explore the galaxy.
 3. Luke discovers a message hidden inside a droid, R2-D2, that leads him to the Jedi Master Obi-Wan Kenobi. Obi-Wan tells Luke about the Force, an energy field that gives certain beings extraordinary powers, and informs him of his true identity as the son of a Jedi Knight.
 4. Luke begins his training in the ways of the Force, learning how to control his powers and use them to fight against the evil Empire.
-5. FIND
+5. Luke, along with his friends Han Solo and Princess Leia, successfully destroys the Empire's superweapon, the Death Star, and deals a significant blow to their enemy.
 6. TAKE
 7. RETURN
 8. CHANGE
