@@ -1,6 +1,6 @@
 # Harry Potter 
 
-1. YOU
+1. Harry Potter is living in a small cupboard under the stairs in the Dursleys' home, where he is mistreated and neglected.
 2. NEED
 3. GO
 4. SEARCH
