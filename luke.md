@@ -6,7 +6,7 @@
 4. Luke begins his training in the ways of the Force, learning how to control his powers and use them to fight against the evil Empire.
 5. Luke, along with his friends Han Solo and Princess Leia, successfully destroys the Empire's superweapon, the Death Star, and deals a significant blow to their enemy.
 6. In the battle, Obi-Wan sacrifices himself to allow Luke and his friends to escape. Luke must also come to terms with the revelation that Darth Vader, the Empire's most feared agent, is actually his father.
-7. RETURN
+7. Luke and his friends regroup with the Rebel Alliance, but the fight against the Empire is far from over. They must continue to train and prepare for the next battle.
 8. CHANGE
 
 ### Created by George Lucas
